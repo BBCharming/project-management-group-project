@@ -3,7 +3,7 @@ The meeting was scheduled for 16th January, 2026 at 9.pm via Google meet. Due to
 Present Members: 
 Isaac Tembo
 Darius Chungu
-Mwaba Luangwa
+Mwaba Lwanga
 Benjamin Chaambwa
 
 Agenda: Project comprehension and proporsal writing strategy.
